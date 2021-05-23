@@ -1,2 +1,2 @@
-20213068	Lim Minseok
+Lim Minseok:20213068
 Kookmin Univ. SW dept.
